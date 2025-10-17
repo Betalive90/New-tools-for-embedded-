@@ -1,5 +1,5 @@
 # New-tools-for-embedded-
-New tools for embedded websites apps by url and i have give you some examples wirh officail code if you face a problem or need more help please contact me by betalive live ai chat request human help https://betalive2023.blogspot.com/2025/05/betalive-live-chat.html or by email infobetalive@protonmail.com
+New tools for embedded websites apps by url and i have give you some examples with officail code if you face a problem or need more help please contact me by betalive live ai chat request human help https://betalive2023.blogspot.com/2025/05/betalive-live-chat.html or by email infobetalive@protonmail.com
 
 *Thinking...*
 
