@@ -1,6 +1,6 @@
 # New-tools-for-embedded-
 New tools for embedded websites apps by url and i have give you some examples with officail code if you face a problem or need more help please contact me by betalive live ai chat request human help https://betalive2023.blogspot.com/2025/05/betalive-live-chat.html or by email infobetalive@protonmail.com . you can access the current upcoming updates through this link 🔗file:///C:/Users/milad/Documents/embed%20tool.html
- is not implemented yet 
+ is not implemented yet i have updated code with new features and more securely and privacy 🔏 protection you can find code at the end  of the page this update process is from December of last year 2024 until December of 2025 
 
 *Thinking...*
 
